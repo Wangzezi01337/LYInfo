@@ -9,4 +9,4 @@ Wangzezi Temple 夏天233 李佳乐 张铁男 还有自己的亲徒弟等<p>
 LY说等有钱了要自写IDEA可是凭他的skid的水平项目应该进行到创建文件夹了<p>
 5.偷源码：
 LY哥找Temple要的源码却反手开源说是自己的为自己引流<p>
-LY的灵堂在https://lyl.badlife.today/欢迎参观
+LY的灵堂在https://lyl.badlife.today/  欢迎参观
