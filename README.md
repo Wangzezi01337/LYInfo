@@ -9,5 +9,5 @@ Wangzezi Temple 夏天233 李佳乐 张铁男 还有自己的亲徒弟等<p>
 LY说等有钱了要自写IDEA可是凭他的skid的水平项目应该进行到创建文件夹了<p>
 5.偷源码：
 LY哥找Temple要的源码却反手开源说是自己的为自己引流<p>
-<a heaf = "https://lyl.badlife.today/">  LY的灵堂在欢迎参观</a>
+<a href="https://lyl.badlife.today/" target="_blank" rel="noopener noreferrer">LY灵堂欢迎参观</a><p>
 <a heaf = "https://siren.badlife.today/baobi.html"> 死人网站欢迎观看</a>
