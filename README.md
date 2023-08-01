@@ -10,3 +10,4 @@ LY说等有钱了要自写IDEA可是凭他的skid的水平项目应该进行到�
 5.偷源码：
 LY哥找Temple要的源码却反手开源说是自己的为自己引流<p>
 LY的灵堂在https://lyl.badlife.today/  欢迎参观
+https://siren.badlife.today/baobi.html 死人网站欢迎观看
